@@ -1,5 +1,5 @@
 Video Link
-https://drive.google.com/file/d/1Wx8ohtaW5_Dgu4UmuTN9UOCGggige4Rd/view?usp=drive_link
+https://drive.google.com/file/d/1Wx8ohtaW5_Dgu4UmuTN9UOCGggige4Rd/view
 
 ![Screenshot 2024-12-29 142155](https://github.com/user-attachments/assets/d76832cd-94bd-4e18-8119-c05cc9f8d919)
 ![Screenshot 2024-12-29 142216](https://github.com/user-attachments/assets/c7267f90-c474-4df6-b6e7-329a49be511b)
